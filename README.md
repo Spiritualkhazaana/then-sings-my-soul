@@ -1,1 +1,3 @@
-# then-sings-my-soul
+# *A Deep Dive into “Then Sings My Soul”: The Melodies of Faith*
+## *Music has a way of bypassing the intellect and heading straight for the heart. For centuries, hymns have served as the spiritual backbone of the church, providing a vocabulary for worship, grief, and celebration. In his seminal work, “Then Sings My Soul: 150 of the World’s Greatest Hymn Stories,” Robert J. Morgan doesn’t just list lyrics; he unearths the raw, human experiences that birthed them.* [More details…](https://spiritualkhazaana.com/a-deep-dive-into-then-sings-my-soul/)
+## #thensingsmysoul #christianhymns #amazinggrace #greatisthyfaithfulness #justasiam
